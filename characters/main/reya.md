@@ -11,6 +11,12 @@
 - Middle Name: Evelyn (Chosen to honor corporate allies post-betrayal)
 - Family Name: St. Claire (Changed from Martinez after betrayal)
 
+### Name Usage in Different Contexts
+- Corporate Records: "Citizen R.E. St. Claire"
+- Personal: "Reya"
+- Resistance Records: "Reya M." (Acknowledging Martinez heritage)
+- Spirit Form: Appears with "Lightbringer" sigil
+
 ## Personal History
 - Born into high corporate status
 - Educated in upper arcology levels
